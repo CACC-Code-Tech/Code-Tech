@@ -5,6 +5,7 @@
 📌 Siga-nos para mais conteúdo tech:
 
 Youtube: @codetech2024
+
 TikTok: @codetech2024
 
 👥 Junte-se à nossa comunidade de desenvolvedores e entusiastas tech! 🤝💬 Deixe seu comentário compartilhando suas ideias e dúvidas. Estamos aqui para aprender e crescer juntos! 🚀🌐
