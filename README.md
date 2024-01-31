@@ -13,3 +13,4 @@ TikTok: @codetech2024
 🚨 Não perca as últimas tendências tech! 🚨
 
 Obrigado por fazer parte da comunidade CODE TECH! 🚀💻
+-G.W.H
